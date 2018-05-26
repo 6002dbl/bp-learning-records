@@ -4,4 +4,4 @@
 
 [学习笔记-半撇私塾应用传播学](https://www.jianshu.com/p/cf3f6c4eb062)
 
-[学习笔记-半撇私塾故事结构篇]（https://www.jianshu.com/p/1ed1518ddb57）
+[学习笔记-半撇私塾故事结构篇](https://www.jianshu.com/p/1ed1518ddb57)
